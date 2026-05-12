@@ -1,4 +1,4 @@
-# 
+# Enhance Process Explorer for PC | Process Explorer for Windows with rare Process Explorer for PC | Process Explorer for Windows Automation | file-deletion + duplicate-detection,
 
 
 
